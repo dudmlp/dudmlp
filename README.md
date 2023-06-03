@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @dudmlp
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning delphi
-- 📫 How to reach me @dudabambini_ on ig
+- 📫 How to reach me @dudmlp on tt
